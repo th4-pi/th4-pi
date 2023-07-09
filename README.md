@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @th4-pi
+- 👀 I’m interested in ... Coding
+- 🌱 I’m currently learning ... Japanese
+- 💞️ I’m looking to collaborate on ... Gaming software
+- 📫 How to reach me ... dont im very private just here to help not a chatter
